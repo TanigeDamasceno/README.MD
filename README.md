@@ -1,4 +1,4 @@
-## Oiii! Eu sou a Tanige Damasceno!! 
+## Oiee! Eu sou a Tanige Damasceno!! 
 ## Seja bem vindo(a)!!
 
 <a href="https://github.com/tanigedamasceno">
